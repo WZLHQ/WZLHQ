@@ -5,4 +5,4 @@
 - ⚡ Fun fact: I'm a fun guy
 
 # What's NEW 👋
-- 🤔 I’m looking for a postdoctoral position, please feel free to contact me hqwz2618@163.com
+- 🤔 I’m looking for a **postdoctoral position**, please feel free to contact me hqwz2618@163.com
